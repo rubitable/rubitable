@@ -15,4 +15,4 @@ everything is self explanatory but can also mean:
 - 🗨 looking for chat: interact freely, i'm most likely to reply and hold a prolonged conversation
 - 🎭 looking for rp: feel free (but preferably ask) to interact during roleplay; i'm in character somewhere
 - 🌙 away: i'm offtab / afk for a long period / interact with extreme caution, i'll have more selective responses than usual
-- ⛔ busy: do not interact
+- ⛔ busy: also afk for a long period / do not interact, little to no responses

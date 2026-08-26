@@ -17,5 +17,5 @@ everything is self explanatory but can also mean:
 - 🎭 looking for rp: feel free (but preferably ask) to interact during roleplay; i'm in character somewhere
 - 🌙 away: i'm offtab / afk for a long period / interact with extreme caution, i'll have more selective responses than usual
 - ⛔ busy: also afk for a long period / do not interact, little to no responses
-
+----
 ![](https://komarev.com/ghpvc/?username=rubitable&color=0c3089&style=plastic&label=times+i've+thought+about+guest+today)

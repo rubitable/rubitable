@@ -1,11 +1,11 @@
-## rubitable's intro repository
+## 💙👊💣 rubitable's intro repository
 <sub>*heavily under construction</sub>
 #### general info 
 - i li ke th e las t gu es t.. ^ _ ^
 ><sub>if you were friended before june 4th but were removed/blocked and weren't friended again, it's not personal or a grudge. i'm having difficulties with reestablishing people. </sub>
 
 #### byi
-- i go afk or lose my social battery at the most inopportune times
+- i go afk or lose my social battery at the most inopportune times.
 
 #### status meanings
 

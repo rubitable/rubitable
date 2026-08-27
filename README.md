@@ -3,7 +3,7 @@
 
 ---
 ### basics
-hi! im sear, and i use they/them or ey/em pronouns, though i am not strict on these
+hi! i'm sear or ruby. i use they/them and ey/em pronouns, though i am not strict on these.  
 
 
 #### other info 
@@ -16,6 +16,8 @@ i li ke th e las t gu es t.. ^ _ ^
 i go afk / stop responding at the most inopportune times.
 
 my social battery is usually low.
+
+for the sake of not filling my friends list too quickly, i do not accept friend requests on the first meeting.
 
 
 ### status meanings

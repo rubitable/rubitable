@@ -14,6 +14,7 @@ i li ke th e las t gu es t.. ^ _ ^
 
 ### byi
 i go afk / stop responding at the most inopportune times.
+
 my social battery is usually low.
 
 
